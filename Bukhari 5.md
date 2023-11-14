@@ -1,11 +1,5 @@
 # Bukhari5
 
-Created: April 23, 2023 10:27 PM
-Updated: April 23, 2023 10:27 PM
-URL: http://bewley.virtualave.net/bukhari5.html#8
-
-# Bukhari5
-
 **Chapter 8: Book of
 Prayer**
 
@@ -59,7 +53,7 @@ bless him and grant him peace, may Allah bless him and grant him peace, said,
 "Then I was taken up until I appeared on a high plateau where I heard the
 scratching of pens."
 
-[343](http://bewley.virtualave.net/muw3.html#t9). Ibn Hazm and Anas ibn Malik said that the
+343. Ibn Hazm and Anas ibn Malik said that the
 Prophet, may Allah bless him and grant him peace, said, "Allah prescribed
 fifty prayers for my community and I returned with that until I passed by
 Musa. He said, 'What has Allah prescribed to you for your community?' I said,
@@ -138,7 +132,7 @@ shoulders."
 347. It is related from 'Umar ibn Abi Salama that the Prophet, may Allah
 bless him and grant him peace, prayed in a single garment with its ends crossed.
 
-[348](http://bewley.virtualave.net/muw3.html#j30). It is related that 'Umar ibn Abi Salama
+348. It is related that 'Umar ibn Abi Salama
 saw the Prophet, may Allah bless him and grant him peace, praying in a single
 garment in the house of Umm Salama and he had crossed its ends over his
 shoulders.
@@ -148,7 +142,7 @@ Allah, may Allah bless him and grant him peace, praying in the house of Umm
 Salama wrapped in a single garment, having placed the ends of it over his
 shoulders.
 
-[350](http://bewley.virtualave.net/muw3.html#t31). It is related that Abu Muraa, the
+350. It is related that Abu Muraa, the
 *mawla* of Umm Hani' bint Abi Talib, heard Umm Hani' bint Abi Talib
 say, "I went to the Messenger of Allah, may Allah bless him and grant him
 peace, in the year of the Conquest of Makka and found him doing ghusl, with
@@ -163,7 +157,7 @@ to whom you have given protection, Umm Hani'.'"
 
 Umm Hani' said that that happened in the morning.
 
-[351](http://bewley.virtualave.net/muw3.html#j31). It is related from Abu Hurayra that someone
+351. It is related from Abu Hurayra that someone
 asked the Messenger of Allah, may Allah bless him and grant him peace, about
 praying wearing a single garment and the Messenger of Allah, may Allah bless
 him and grant him peace, said, "Do all of you have two garments?"
@@ -339,7 +333,7 @@ and then they would return to their homes without anyone recognising them."
 
 **XIII: When someone prays in a patterned garment and looks at the pattern**
 
-[366](http://bewley.virtualave.net/muw2.html#72). It is related from 'A'isha that the Prophet,
+366. It is related from 'A'isha that the Prophet,
 may Allah bless him and grant him peace, prayed in a long shirt which had
 a pattern on it and glanced once at the pattern. When he finished, he said,
 "Take this shirt of mine to Abu Jahm and bring me Abu Jahm's anbijaniyya
@@ -452,7 +446,7 @@ Anas prayed on his bed. Anas said, "We used to pray with the Prophet, may
 Allah bless him and grant him peace, and some of us would prostrate on our
 clothes."
 
-[375](http://bewley.virtualave.net/muw3.html#2). It is related that 'A'isha, the wife of the
+375. It is related that 'A'isha, the wife of the
 Prophet, said. "I used to sleep directly in front of the Messenger of Allah,
 may Allah bless him and grant him peace, and my legs were in his
 *qibla*. When he prostrated, he would nudge me and I would pull up my
@@ -674,13 +668,13 @@ Therefore no one should spit in the direction of his *qibla*, but to
 his left or under his foot." Then he took the end of his cloak and spat in
 it and folded it over and said, "Or he could do this."
 
-[398](http://bewley.virtualave.net/muw4.html#q4). It is related from 'Abdullah ibn 'Umar that
+398. It is related from 'Abdullah ibn 'Umar that
 the Messenger of Allah, may Allah bless him and grant him peace, saw some
 sputum on the wall of the *qibla* and scraped it off. Then he turned
 towards the people and said, "When any of you are praying, you should not
 spit in front of you for Allah is in front of you when you pray."
 
-[399](http://bewley.virtualave.net/muw4.html#q5). It is related from 'A'isha, Umm al-Mu'minin,
+399. It is related from 'A'isha, Umm al-Mu'minin,
 that the Messenger of Allah, may Allah bless him and grant him peace, saw
 some mucus, phlegm or sputum on the wall of the *qibla* and scraped
 it off.
@@ -749,7 +743,7 @@ spat in it and folded it over and said, "Or he could do this."
 **VIII: The Imam warning the people about doing the prayer properly and
 mentioning the *qibla***
 
-[408](http://bewley.virtualave.net/muw3.html#t73). It is related from Abu Hurayra that the
+408. It is related from Abu Hurayra that the
 Messenger of Allah, may Allah bless him and grant him peace, said, "Do you
 think that my *qibla* is this way? By Allah, Your humbleness is not
 hidden from me nor is your bowing. I can see you behind my back."
@@ -823,7 +817,7 @@ prayed tw*o rak'ats*."
 **XIV: Mosques inside houses. Al-Bara' ibn 'Azib prayed group prayers in
 his mosque inside his house.**
 
-[415](http://bewley.virtualave.net/muw3.html#t89). It is related that 'Itban ibn Malik, one
+415. It is related that 'Itban ibn Malik, one
 of the Companions of the Messenger of Allah, may Allah bless him and grant
 him peace, and one of the Ansar who was present at Badr, came to the Messenger
 of Allah, may Allah bless him and grant him peace, and said, "Messenger of
@@ -1061,7 +1055,7 @@ said that he thought that he said in the morning) He said, 'Pray two
 
 **XXVII: On entering a mosque you should pray two *rak'ats***
 
-[433](http://bewley.virtualave.net/muw3.html#t60). It is related from Abu Qatada as-Salami
+433. It is related from Abu Qatada as-Salami
 that the Messenger of Allah, may Allah bless him and grant him peace, said,
 "Whenever one of you enters the mosque, he should pray two *rak'ats*
 before sitting down."
@@ -1369,7 +1363,7 @@ with him. And the other turned away, so Allah turned away from him.'"
 
 **LI: Lying down in the mosque with the legs stretched out**
 
-[463](http://bewley.virtualave.net/muw3.html#t90). It is related from 'Abbad ibn Tamim from
+463. It is related from 'Abbad ibn Tamim from
 his uncle that he saw the Messenger of Allah, may Allah bless him and grant
 him peace, lying on his back in the mosque with one foot on top of the other.
 
@@ -1529,9 +1523,3 @@ the end of the mound. The place where the Prophet, may Allah bless him and
 grant him peace, prayed was lower than it, on the black mound located ten
 cubits or thereabouts from the other mound. He prayed there facing the two
 gaps in the mountain between him and the Ka'ba.
-
----
-
-**[Return to Contents](http://bewley.virtualave.net/bukhcont.html)**
-
-**[Return to Home Page](http://bewley.virtualave.net/index.html)**
