@@ -1,11 +1,5 @@
 # Bukhari4
 
-Created: April 23, 2023 10:27 PM
-Updated: April 23, 2023 10:27 PM
-URL: http://bewley.virtualave.net/bukhari4.html#5
-
-# Bukhari4
-
 **Chapter 5: The Book of
 *Ghusl***
 
@@ -26,7 +20,7 @@ hands. Allah is Ever-Pardoning, Ever-Forgiving."* (4:42)
 
 **I: Performing *wudu'* before *ghusl***
 
-[245](http://bewley.virtualave.net/muw1.html#p69). It is related from 'A'isha, the wife of
+245. It is related from 'A'isha, the wife of
 the Prophet, that when the Prophet, may Allah bless him and grant him peace,
 performed *ghusl* for *janaba*, he would began by washing his hands
 and then perform *wudu'* like he did *wudu'* for the prayer. Then
@@ -262,7 +256,7 @@ with his hand."
 **XVII: When someone in the mosque remembers that he is in *janaba*
 he should leave immediately and should not do *tayammum***
 
-[271](http://bewley.virtualave.net/muw1.html#p81). It is related that Abu Hurayra said, "Once
+271. It is related that Abu Hurayra said, "Once
 when the *iqama* for the prayer had been called and the rows had been
 made straight, the Messenger of Allah, may Allah bless him and grant him
 peace, came out to us. When he stood in his place of prayer, he remembered
@@ -401,7 +395,7 @@ bless him and grant him peace, for a *fatwa* (legal decision), 'Can
 any of us go to sleep when he is in *janaba*?' He replied, 'Yes, if
 he does wudu'.'"
 
-[286.](http://bewley.virtualave.net/muw1.html#p78) It is related from 'Abdullah ibn 'Umar that
+286. It is related from 'Abdullah ibn 'Umar that
 'Umar ibn al-Khattab mentioned to the Messenger of Allah, may Allah bless
 him and grant him peace, that he sometimes found himself in *janaba*
 at night. The Messenger of Allah, may Allah bless him and grant him peace,
@@ -475,7 +469,7 @@ cow on behalf of his wives.'"
 
 **III A menstruating woman washing her husband's head and combing his hair**
 
-[291](http://bewley.virtualave.net/muw1.html#p104). It is related that 'A'isha said, "I used
+291. It is related that 'A'isha said, "I used
 to comb the head of the Messenger of Allah, may Allah bless him and grant
 him peace, while I was menstruating."
 
@@ -592,7 +586,7 @@ do not do *tawaf* of the House until you are pure.'"
 
 **VIII: False menstruation [bleeding between menstrual periods]**
 
-[300](http://bewley.virtualave.net/muw1.html#p106). It is related that 'A'isha said, " Fatima
+300. It is related that 'A'isha said, " Fatima
 bint Hubaysh told the Messenger of Allah, may Allah bless him and grant him
 peace, 'Messenger of Allah, I never become clean. Should I abandon the prayer?'
 The Messenger of Allah, may Allah bless him and grant him peace,  said,
@@ -601,7 +595,7 @@ praying. When your menstrual period ends, then wash off the blood and pray.'"
 
 **IX: Washing off menstrual blood**
 
-[301](http://bewley.virtualave.net/muw1.html#p105). It is related that Asma' bint Abi Bakr
+301. It is related that Asma' bint Abi Bakr
 said, "A woman asked the Messenger of Allah, may Allah bless him and grant
 him peace, 'Messenger of Allah, what do you think a woman should do if menstrual
 blood gets on her clothes?' The Messenger of Allah, may Allah bless him and
@@ -1157,9 +1151,3 @@ Allah, may Allah bless him and grant him peace, saw a man apart who who had
 not prayed with everyone else. He said, "So-and-so! What stopped you praying
 with everyone else?" He said, "I am on *janaba* and there is no water."
 The Prophet, may Allah bless him and grant him peace,  said, "You must use the pure earth. That will be enough for you."
-
----
-
-**[Return to Contents](http://bewley.virtualave.net/bukhcont.html)**
-
-**[Return to Home Page](http://bewley.virtualave.net/index.html)**
