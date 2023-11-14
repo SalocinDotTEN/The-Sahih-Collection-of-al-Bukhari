@@ -1,70 +1,28 @@
-# Bukhari2
-
-Created: April 23, 2023 10:27 PM
-Updated: April 23, 2023 10:27 PM
-URL: http://bewley.virtualave.net/bukhari2.html#3
-
-# Bukhari2
+# Bukhari 2
 
 **Chapter 3: The Book of
 Knowledge**
 
 **I: The excellence of knowledge**
 
-And the words of Allah, *"Allah will raise in rank those of you who believe
-and those who have been given knowledge,"* (58:11) and *"Say: 'Lord,
-increase me in knowledge.'"* (20:114)
+And the words of Allah, *"Allah will raise in rank those of you who believe and those who have been given knowledge,"* (58:11) and *"Say: 'Lord, increase me in knowledge.'"* (20:114)
 
-**II: On the one who is asked for knowledge while he is engaged in a
-conversation and then finishes his conversation before answering the
-question**
+**II: On the one who is asked for knowledge while he is engaged in a conversation and then finishes his conversation before answering the question**
 
-59. Abu Hurayra said that once, while the Prophet, may Allah bless him and
-grant him peace, was in an assembly talking to the people, a Bedouin came
-and asked, "When is the Last Hour?" The Messenger of Allah, may Allah bless
-him and grant him peace, continued talking upon which some people said that
-the Messenger of Allah, may Allah bless him and grant him peace, had heard
-what the man had said and disliked it while others said that he had simply
-not heard it. When the Messenger of Allah had finished what he was saying,
-he said, "Where is the person who asked about the Last Hour?" He said, "Here I
-am, Messenger of Allah." The Prophet said, "When trustworthiness has been
-lost, then expect the Last Hour." The Bedouin asked, "How will it be lost?" The
-Prophet replied, "When authority lies with other than those who should rightfully
-have it, then expect the Hour."
+59. Abu Hurayra said that once, while the Prophet, may Allah bless him and grant him peace, was in an assembly talking to the people, a Bedouin came and asked, "When is the Last Hour?" The Messenger of Allah, may Allah bless him and grant him peace, continued talking upon which some people said that the Messenger of Allah, may Allah bless him and grant him peace, had heard what the man had said and disliked it while others said that he had simply not heard it. When the Messenger of Allah had finished what he was saying, he said, "Where is the person who asked about the Last Hour?" He said, "Here I am, Messenger of Allah." The Prophet said, "When trustworthiness has been lost, then expect the Last Hour." The Bedouin asked, "How will it be lost?" The Prophet replied, "When authority lies with other than those who should rightfully have it, then expect the Hour."
 
 **III: On the one who raises his voice while imparting knowledge**
 
-60. 'Abdullah ibn 'Amr said, "The Prophet lagged behind us on a journey.
-We went on and he joined us when we were late for the prayer and were doin*g
-wudu'*. We were over wiping our feet [i.e. not washing properly] and he called
-out in a loud voice, 'Woe to the heels from the Fire!' two or three times."
+60. 'Abdullah ibn 'Amr said, "The Prophet lagged behind us on a journey. We went on and he joined us when we were late for the prayer and were doin*g wudu'*. We were over wiping our feet [i.e. not washing properly] and he called out in a loud voice, 'Woe to the heels from the Fire!' two or three times."
 
-**IV: On the words of the narrator, "he related to us" (*haddathana*),
-"he informed us" (*akhbarana*) or "he told us" (*anba'ana*). etc.**
+**IV: On the words of the narrator, "he related to us" (*haddathana*), "he informed us" (*akhbarana*) or "he told us" (*anba'ana*). etc.**
 
-Al-Humaydi said to us, "According to Ibn 'Uyayna, *haddathana, akhbarana,
-anba'ana and sami'tu* are all equally valid." Ibn Mas'ud said, "The Messenger
-of Allah, may Allah bless him and grant him peace, related to us
-(*haddathana*) and he was the most truthful of the truthful..." Shaqiq
-ibn 'Abdullah said, "I heard *(sami'tu*) the Prophet, may Allah bless
-him and grant him peace, say..." Hudhayfa said, "The Messenger of Allah,
-may Allah bless him and grant him peace, narrated to us (*haddathana*)
-two *hadiths*..." Abu 'Aliya said on the authority of Ibn 'Abbas on
-the authority of the Prophet, may Allah bless him and grant him peace, in
-what he recounted from his Lord..." Anas said, "On the authority of the Prophet,
-may Allah bless him and grant him peace, who recounted it from his Lord..."
-Abu Hurayra said, "On the authority of the Prophet, may Allah bless him and
-grant him peace, who recounted it from your Lord."
+Al-Humaydi said to us, "According to Ibn 'Uyayna, *haddathana, akhbarana, anba'ana and sami'tu* are all equally valid." Ibn Mas'ud said, "The Messenger of Allah, may Allah bless him and grant him peace, related to us (*haddathana*) and he was the most truthful of the truthful..." Shaqiq ibn 'Abdullah said, "I heard *(sami'tu*) the Prophet, may Allah bless him and grant him peace, say..." Hudhayfa said, "The Messenger of Allah, may Allah bless him and grant him peace, narrated to us (*haddathana*)two *hadiths*..." Abu 'Aliya said on the authority of Ibn 'Abbas on the authority of the Prophet, may Allah bless him and grant him peace, in what he recounted from his Lord..." Anas said, "On the authority of the Prophet,
+may Allah bless him and grant him peace, who recounted it from his Lord..." Abu Hurayra said, "On the authority of the Prophet, may Allah bless him and grant him peace, who recounted it from your Lord."
 
-61. It is related from Ibn 'Umar that the Messenger of Allah, may Allah bless
-him and grant him peace, said, "There is a tree whose leaves do not fall
-which is like the Muslim. Tell me what it is." The people thought about the
-trees of the desert and 'Abdullah [ibn 'Umar] said, "It occurred to me that it was the
-date-palm, but I was too shy to answer. Then they said, 'Tell us what it
-is, Messenger of Allah.' He said, 'It is the date-palm.'"
+61. It is related from Ibn 'Umar that the Messenger of Allah, may Allah bless him and grant him peace, said, "There is a tree whose leaves do not fall which is like the Muslim. Tell me what it is." The people thought about the trees of the desert and 'Abdullah [ibn 'Umar] said, "It occurred to me that it was the date-palm, but I was too shy to answer. Then they said, 'Tell us what it is, Messenger of Allah.' He said, 'It is the date-palm.'"
 
-**V: On the Imam directing questions to his companions to test their
-knowledge**
+**V: On the Imam directing questions to his companions to test their knowledge**
 
 62. It is related from Ibn 'Umar that the Prophet, may Allah bless him and
 grant him peace, said, "There is a tree whose leaves do not fall which is
@@ -953,17 +911,6 @@ may Allah bless him and grant him peace."
 
 **LIII: On someone answering more than he was asked**
 
-134. It is related from Ibn 'Umar that a man asked the Prophet, may Allah
-bless him and grant him peace, "What should someone in *ihram* wear?"
-He replied, "He should not wear a shirt, a turban, trousers, a burnous or
-a garment stained with *wars* or saffron. If he cannot find sandals,
-then he should wear leather socks but cut them short so that they start under
-the ankles."
+134. It is related from Ibn 'Umar that a man asked the Prophet, may Allah bless him and grant him peace, "What should someone in *ihram* wear?" He replied, "He should not wear a shirt, a turban, trousers, a burnous or a garment stained with *wars* or saffron. If he cannot find sandals, then he should wear leather socks but cut them short so that they start under the ankles."
 
 [*Wars* is a plant which is used to make a yellow dye.]
-
----
-
-**[Return to Contents](http://bewley.virtualave.net/bukhcont.html)**
-
-**[Return to Home Page](http://bewley.virtualave.net/index.html)**
