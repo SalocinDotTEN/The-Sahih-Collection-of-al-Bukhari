@@ -1,11 +1,5 @@
 # Bukhari3
 
-Created: April 23, 2023 10:27 PM
-Updated: April 23, 2023 10:27 PM
-URL: http://bewley.virtualave.net/bukhari3.html#4
-
-# Bukhari3
-
 **Chapter 4. The Book of
 Wudu'**
 
@@ -1203,9 +1197,3 @@ Al-Bara' said, "I repeated this to the Prophet, may Allah bless him and grant
 him peace, and when I reached, 'I have believed in Your Book which You sent
 down,' I said 'and Your Messenger' [instead of the Prophet] He said, 'No
 - "Your Prophet whom You sent."'"
-
----
-
-**[Return to Contents](http://bewley.virtualave.net/bukhcont.html)**
-
-**[Return to Home Page](http://bewley.virtualave.net/index.html)**
