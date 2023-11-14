@@ -872,7 +872,7 @@ Mujahid said, "Neither a timid nor a proud person will learn knowledge."
 'A'isha said, "The best women are the women of the Ansar. Modesty does not
 prevent them from seeking understanding in the *deen*."
 
-[130](http://bewley.virtualave.net/muw1.html#p87). Umm Salama said, "Umm Sulaym came to the
+130. Umm Salama said, "Umm Sulaym came to the
 Messenger of Allah, may Allah bless him and grant him peace, and said, 'Messenger
 of Allah, Allah is not shy about the truth. Does a woman have to perform a
 *ghusl* when she has an erotic dream?' The Prophet, Messenger of Allah
